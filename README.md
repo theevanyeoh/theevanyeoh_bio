@@ -6,7 +6,9 @@ I'm a content creator on YouTube. I make videos mostly about tech and I do make 
 YouTube aka Daily Apple. Twitter and Instagram @theevanyeoh
 
 YouTube - https://youtube.com/theevanyeoh
+
 Instagram - https://instagram.com/theevanyeoh
+
 Rest of the stuff - https://hydr.in/7640 
 
 I have a Discord server too! Feel free to join
