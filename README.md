@@ -5,8 +5,12 @@ I'm a content creator on YouTube. I make videos mostly about tech and I do make 
 ## Socials
 YouTube aka Daily Apple. Twitter and Instagram @theevanyeoh
 
+YouTube - https://youtube.com/theevanyeoh
+Instagram - https://instagram.com/theevanyeoh
+Rest of the stuff - https://hydr.in/7640 
+
 I have a Discord server too! Feel free to join
-https://dsc.gg/theevanyeoh
+https://discord.gg/88xQyHtc8T
 
 ## Languages that I learn/doing
 HTML - 2019 - 2020 (Probably forgotten)
